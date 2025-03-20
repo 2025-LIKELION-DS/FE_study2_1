@@ -9,3 +9,6 @@
 | [@mzxxzysy](https://github.com/mzxxzysy) | [@chldsbdud](https://github.com/chldsbdud) |
 
 #### 🦁 아기사자
+
+김예나
+저녁 메뉴: 참치주먹밥
